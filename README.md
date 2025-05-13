@@ -1,4 +1,4 @@
-## Guilherme Silva 👋
+## Guilherme Silva 👨‍💻
 
 Me chamo Guilherme, Tenho 19 anos e atualmente estou cursando Sistemas de Informação na FSA, e tenho uma Paixão por Tecnologia e desenvolvimento.
 
